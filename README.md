@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @mba-4
-- 👀 I’m interested in Networking and Web design 
-- 🌱 I’m currently learning ..Final year cse
-- 💞️ I’m looking to collaborate on ...
+- 👀 I’m interested in Networking and Video Editing
+- 🌱 I’m currently working as Senior IT Recruiter 
+- 💞️ I’m looking to collaborate on Videos.
 
-- 📫 How to reach me ... www.growinginttech.com
+- 📫 How to reach me ...  https://www.linkedin.com/in/akhilkumar4/
 @telugu_pubg_avengers
 
 <!---
